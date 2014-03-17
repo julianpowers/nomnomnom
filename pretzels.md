@@ -6,12 +6,18 @@
 * Flour (4 1/2 Cups/520 grams)
 * Baking Soda method
 
+***
+
 * Baking Soda
 * Pot of water
 * Lye method
 
+***
+
 * 2 Tbs food grade lye
 * 1 quart/liter water
+
+***
 
 Dissolve yeast in 1/8-cup warm water and brown sugar. Stir in 1 1/3 cups warm water, add salt and flour. Knead dough until smooth and elastic. Dough does not need to rise.
 
@@ -33,6 +39,7 @@ Notes: Do not refrigerate this dough, it will become unworkable. Also, do not tr
 
 If you got to this page by searching for Pretzel Recipes on the Internet, then hit the home button below to check out my home page about Munich's Oktoberfest.
 
+***
 
 * http://imgur.com/a/DoGtB
 * comments: http://www.reddit.com/r/food/comments/20e5n2/homemade_soft_pretzels/
